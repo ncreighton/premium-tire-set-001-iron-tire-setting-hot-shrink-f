@@ -1,0 +1,2 @@
+# premium-tire-set-001-iron-tire-setting-hot-shrink-f
+Stop losing hours and costly materials to failed shrink fits—one miscalculation in heating or cooling can ruin an iron tire setting. This Notion template turns guesswork into a repeatable, documented process.  The Iron Tire Setting Hot Shrink Fit Process Planner eliminates trial-and-error by providing a structured workflow for thermal expansion cal
